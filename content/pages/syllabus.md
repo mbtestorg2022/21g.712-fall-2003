@@ -9,7 +9,7 @@ Horario del Curso
 
 Conferencias: 1 sesion / week, 3 horas / sesion
 
-Esta asignatura está destinada a aquellos alumnos que hayan terminado [21G.704](/courses/21g-704-spanish-iv-spring-2005/) (Spanish IV) o un curso equivalente. Los objetivos son el mejoramiento de la comprensión auditiva, la conversación y la escritura. Las lecturas incluyen cuentos, dramas y ensayos y habrá videos de diversos tipos (para mirar en clase). También habrá trabajo basado en la Red Mundial. Algunos de los materiales tendrán enfoques lingüísticos (mejorar el vocabulario, la gramática, etc.). Explorar diferencias y semejanzas culturales es otra meta de esta asignatura. En clase trabajaremos mucho en grupos de discusión, analizando las lecturas y los videos y participando en minidramas, debates y juegos.
+Esta asignatura está destinada a aquellos alumnos que hayan terminado [21G.704](/courses/21g-704-spanish-iv-spring-2005) (Spanish IV) o un curso equivalente. Los objetivos son el mejoramiento de la comprensión auditiva, la conversación y la escritura. Las lecturas incluyen cuentos, dramas y ensayos y habrá videos de diversos tipos (para mirar en clase). También habrá trabajo basado en la Red Mundial. Algunos de los materiales tendrán enfoques lingüísticos (mejorar el vocabulario, la gramática, etc.). Explorar diferencias y semejanzas culturales es otra meta de esta asignatura. En clase trabajaremos mucho en grupos de discusión, analizando las lecturas y los videos y participando en minidramas, debates y juegos.
 
 Su responsabilidad como alumno/a consiste en lo siguiente:
 
